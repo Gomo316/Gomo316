@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on various topics regarding technology,psychology,finance and digital marketing.
 - 📫 How to reach me: Email- kwamongwegw@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I enjoy watching a good rom-com movie and reading.
+- ⚡ Fun fact: I enjoy watching a good rom-com movie,baking and reading.
 
 <!---
 Gomo316/Gomo316 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
